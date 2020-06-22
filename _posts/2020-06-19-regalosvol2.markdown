@@ -16,4 +16,5 @@ Como ya eres mayor de edad y puedes beber legalmente, el segundo regalo es...
 ![Vale](/assets/images/cata.jpg)
 
 La cena ya veremos como será y el alojamiento es mi casa 😂, porque supongo que terminaremos tarde.
+
 ---
